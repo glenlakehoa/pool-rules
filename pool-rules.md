@@ -31,7 +31,8 @@ Resident Hours - 9:00 a.m. to 9:00 p.m.
 * Damages to the pool, pool equipment, landscaping and fencing: Owners, residents or their guests who cause damage, deliberate or accidental, shall be held liable for repairs. The owner or resident is subject to the cost of repair plus any fees attached (i.e., quotes for repair, administrative expenses, etc.). Other penalties may include loss of pool privileges, depending on the severity of damage or loss.
 * After-hours violations: Owners, residents or guests caught after 9:00 PM can lose pool privileges, face trespassing charges and fees associated with the cost if caught using the pool or pool area.
 
-Rules violations: Any owner, resident or guest found in violation of the posted pool rules shall be subject to the following actions:
+## Rules violations:
+Any owner, resident or guest found in violation of the posted pool rules shall be subject to the following actions:
 * First offense: warning letter from the management company with date and time of the infraction
 * Second offense: letter from the management company with date and time of the infraction AND loss of pool privileges for 14 days
 * Third offense: letter from the management company with date and time of the infraction AND loss of pool privileges for the remainder of the year.
