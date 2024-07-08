@@ -1,8 +1,11 @@
 # Glenlake Upstate Homeowners Association Inc. Pool Rules
 
 Pool Rules as of June 6, 2023
+
 Pool Opens May 1st and Closes September 30th
+
 Adult Resident Exercise Only Swim - 7:00 a.m. to 9:00 a.m.
+
 Resident Hours - 9:00 a.m. to 9:00 p.m.
 
 * IMPORTANT: Users must always completely shut the entrance gate upon entering and leaving the pool to prevent unauthorized use. Do not prop the gate open at any time. Do not open the gate for anyone who does not have an access fob. DO NOT OPEN THE GATE FOR ANYONE WHOSE FOB IS NOT WORKING. It is possible that their fob is not working because their pool privileges have been revoked and they are not permitted to enter.
