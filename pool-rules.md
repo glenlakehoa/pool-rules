@@ -14,7 +14,7 @@ Resident Hours - 9:00 a.m. to 9:00 p.m.
 * There should be no solo swimming. There is no lifeguard on duty.
 * Absolutely no diving, backflips or somersaults permitted.
 * No running, boisterous or disruptive behavior will be permitted in the pool or pool area. Games that disturb other swimmers are not permitted in the pool or pool area.
-* No personal wheeled modes of transportation are allowed in the pool deck area except for handicap usage, strollers, and coolers. Ex. Bicycles, roller skates, skateboards, rollerblades, scooters, etc.
+* No personal wheeled or non-wheeled modes of transportation are allowed in the pool deck area except for handicap usage, strollers, and coolers. Examples: Bicycles, roller skates, skateboards, rollerblades, scooters, kayaks, canoes, inflatable rafts, and similar.
 * Earphones must be used when listening to music on personal audio devices. Do not use portable speakers.
 * NO SMOKING is allowed within 25 feet of the pool, pool area, gate and restrooms.
 * Persons under the influence of drugs or alcohol are not permitted in the pool or pool area.
